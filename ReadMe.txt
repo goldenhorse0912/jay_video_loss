@@ -1,0 +1,4 @@
+Slack: temch.yara77@gmail.com
+telegram: https://t.me/cbruce03
+whatsapp: +380 997065108
+skype:live:.cid.d14a4fb20e811ad1
